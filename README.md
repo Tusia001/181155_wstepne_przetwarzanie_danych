@@ -1,0 +1,1 @@
+# 181155_wstepne_przetwarzanie_danych
